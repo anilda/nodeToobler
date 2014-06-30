@@ -1,3 +1,2 @@
 Hi,
-ngdfng 
 bcvb 
